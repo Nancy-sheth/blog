@@ -1,4 +1,4 @@
-## #  Delivery Solution For Your Business!!
+##  Delivery Solution For Your Business!!
 
 Once we have started our business, it's basic to choose your **Delivery Strategies.**
 
